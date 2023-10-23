@@ -7,7 +7,7 @@ Desenvolvedor Web e Analista de Dados
 Tenho 2 anos de experiência em análise de dados
 
 * 🌍 Moro no Brasil
-* ✉️ Você pode entrar em contato comigo em [carlosjp48@hotmail.com](mailto:carlosjp48@hotmail.com)[](mailto:carlosjp48@hotmail.com)
+* ✉️ Você pode entrar em contato comigo em [joaopaulofigueiredo72@gmail.com](mailto:joaopaulofigueiredo72@gmail.com)[](mailto:joaopaulofigueiredo72@gmail.com)
 * 🤝  I'm open to collaborating on todos os tipos de projeto
 
 ### Habilidades
